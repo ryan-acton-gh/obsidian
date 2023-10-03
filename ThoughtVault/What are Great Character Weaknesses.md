@@ -1,0 +1,2 @@
+Characters who are invulnerable are not interesting.
+All great characters have weaknesses that make them interesting for the reader. Make sure their weaknesses are more interesting than their strengths.

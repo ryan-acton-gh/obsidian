@@ -1,0 +1,1 @@
+When some parts of the system or program fail. Often due to network issues or unreliability

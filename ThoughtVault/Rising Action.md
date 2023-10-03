@@ -1,0 +1,1 @@
+An example of this when your main character wants something and `some obstacle` gets in the main character's way.

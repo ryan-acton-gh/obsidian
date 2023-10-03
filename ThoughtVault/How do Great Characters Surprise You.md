@@ -1,0 +1,1 @@
+They can be more resourceful than imagined or they might decide to not conform to a trope such as walking blindly into a dark alleyway.

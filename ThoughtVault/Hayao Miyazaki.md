@@ -1,0 +1,1 @@
+Celebrated animator and director of Spirited Away, Ponyo, Howl's Moving Castle and other movies.

@@ -1,0 +1,1 @@
+Combined with [[Where do Great Characters Come From|Where do they come from?]] provides a reader with a complete character arc. Why they want a particular thing, how hard they are going to go to get it and how resilient they will be when met with [[Freytag's Pyramid#Rising Action|Rising Actions]]
